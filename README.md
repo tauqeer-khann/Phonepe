@@ -2,6 +2,8 @@
 
 👉 **Buy Now for Just ₹149!** [Click Here](https://pages.razorpay.com/pl_PbGlVbQhG9d3M8/view)
 
+👉 **Download Paytm Mod APK:** [Click Here](https://pages.razorpay.com/paytm-mod-apk)  
+
 👉 **Join Our Telegram for Updates!** [Join Now](https://t.me/newfake_phonepee)
 
 ---
@@ -30,6 +32,8 @@ Want to prank your friends with realistic **fake PhonePe transactions, fake paym
 🎭 **This app is designed purely for harmless pranks and entertainment!** Fool your friends or have fun with fake PhonePe payments.
 
 ⏳ **Limited-Time Offer – Just ₹149!**
+
+👉 **Download Paytm Mod APK:** [Click Here](https://pages.razorpay.com/paytm-mod-apk)  
 
 👉 **Download Now:** [Get Fake PhonePe App for ₹149](https://pages.razorpay.com/pl_PbGlVbQhG9d3M8/view)
 
@@ -77,6 +81,9 @@ People use fake PhonePe apps for:
 ---
 
 📥 **Download Fake PhonePe APK Now:** [Click Here](https://pages.razorpay.com/pl_PbGlVbQhG9d3M8/view)
+
+👉 **Download Paytm Mod APK:** [Click Here](https://pages.razorpay.com/paytm-mod-apk)  
+
 📢 **Join Our Telegram for Updates & Support:** [Join Now](https://t.me/newfake_phonepee)
 
 🚀 **Grab your Fake PhonePe App now and start pranking today!**
